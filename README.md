@@ -25,8 +25,6 @@
 ![Page 23](./JabezDickson-NF-Asgn1-24/JabezDickson-NF-Asgn1-24-23.png)
 ![Page 24](./JabezDickson-NF-Asgn1-24/JabezDickson-NF-Asgn1-24-24.png)
 ![Page 25](./JabezDickson-NF-Asgn1-24/JabezDickson-NF-Asgn1-24-25.png)
-![Page 26](./JabezDickson-NF-Asgn1-24/JabezDickson-NF-Asgn1-24-26.png)
-![Page 27](./JabezDickson-NF-Asgn1-24/JabezDickson-NF-Asgn1-24-27.png)
 
 
 
